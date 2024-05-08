@@ -5,11 +5,11 @@
 - 😄 Pronouns: He / Him
 - ⚡ Fun fact: I play the guitar. I am colorblind, so I sketch
 - 🎵 Check out my music here :
-[Live Performance of original composition](https://www.youtube.com/watch?v=PITwyWY6TK0)
-[Original composition](https://www.youtube.com/watch?v=I8r8luPMLuk)
-[Solo cover of The Entertainer](https://www.youtube.com/watch?v=X8hL1sE6wgQ)
-[Minor Swing cover](https://youtu.be/xO8pCwehT78?si=DdWKbnDDMUQ_9bHD)
-[Solo live performance](https://youtu.be/w5pR-1fJcmc?si=0x7T_YFjU0v3Gkjd)
+[Live Performance of original composition](https://www.youtube.com/watch?v=PITwyWY6TK0)  
+[Original composition](https://www.youtube.com/watch?v=I8r8luPMLuk)  
+[Solo cover of The Entertainer](https://www.youtube.com/watch?v=X8hL1sE6wgQ)  
+[Minor Swing cover](https://youtu.be/xO8pCwehT78?si=DdWKbnDDMUQ_9bHD)  
+[Solo live performance](https://youtu.be/w5pR-1fJcmc?si=0x7T_YFjU0v3Gkjd)  
   
 
 <!---
