@@ -4,7 +4,7 @@
 - 📫 How to reach me utsavm2@illinois.edu / utsav.majumdar@gmail.com
 - 😄 Pronouns: He / Him
 - ⚡ Fun fact: I play the guitar. I am colorblind, so I sketch
-- 🎵 Check out my music here :
+- 🎵 Check out my music here :  
 [Live Performance of original composition](https://www.youtube.com/watch?v=PITwyWY6TK0)  
 [Original composition](https://www.youtube.com/watch?v=I8r8luPMLuk)  
 [Solo cover of The Entertainer](https://www.youtube.com/watch?v=X8hL1sE6wgQ)  
